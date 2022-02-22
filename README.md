@@ -1,1 +1,1 @@
-# Featuretools
+# All my collection
